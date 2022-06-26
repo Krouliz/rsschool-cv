@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Krouliz.github.io/rsschool-cv/cv
