@@ -1,1 +1,1 @@
-https://Krouliz.github.io/rsschool-cv/cv
+https://Krouliz.github.io/rsschool-cv/
